@@ -19,3 +19,7 @@ Until you realised you hate Mel Gibson
 So instead watch [Breaking Bad](../breaking-bad/breaking-bad.md) for the 12th time.
 
 Couldn't finish it, where are the new movies, netflix?!
+
+Netflix later invested heavily to create too much content for the platform.
+
+Now there are too many options to decide to watch!
